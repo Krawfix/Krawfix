@@ -1,4 +1,4 @@
-## Hey, I'm **Arjun Khanal (Nx75)** 👋
+## Hey, I'm **Arjun Khanal (Krawfix)** 👋
 
 - Tech Enthusiast  
 - Interested in Hardware and Game Development
